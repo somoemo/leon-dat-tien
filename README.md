@@ -4,6 +4,7 @@
 <div class="highlight">
 "Sứ mệnh của tôi không chỉ là tạo ra một cổng game, mà là xây dựng một môi trường giải trí minh bạch, an toàn và công bằng cho mọi người chơi." – CEO Leon Đạt Tiến chia sẻ.
 </div>
+<img src="https://wjaonbk.za.com/wp-content/uploads/2026/03/chan-dung-ceo-leon-dat-tien-trong-buoi-hop-dinh-huong-chien-luoc-sunwin.jpg">
 <h2>2. Hành trình xây dựng thương hiệu Sunwin</h2>
 <p>Bắt đầu từ những ngày đầu khi thị trường game đổi thưởng còn nhiều hỗn loạn, Leon Đạt Tiến đã xác định hướng đi riêng cho Sunwin là "Lấy người dùng làm gốc". Anh tập trung tối ưu hóa ba yếu tố cốt lõi:</p>
 <ul>
@@ -11,6 +12,7 @@
 <li><strong>Trải nghiệm người dùng:</strong> Giao diện được thiết kế tối giản nhưng sang trọng, tốc độ truy cập được tối ưu hóa ngay cả trong giờ cao điểm.</li>
 <li><strong>Sự minh bạch:</strong> Mọi kết quả trò chơi đều được giám sát bởi các tổ chức quốc tế, đảm bảo không có sự can thiệp từ bên ngoài.</li>
 </ul>
+<img src="https://wjaonbk.za.com/wp-content/uploads/2026/03/leon-dat-tien-phat-bieu-tai-le-ra-mat-san-pham-moi-cua-sunwin.jpg">
 <h2>3. Tầm nhìn và định hướng tương lai của Leon Đạt Tiến</h2>
 <p>Dưới sự dẫn dắt của <strong>CEO Leon Đạt Tiến</strong>, Sunwin không chỉ dừng lại ở một cổng game bài mà đang dần chuyển mình thành một tập đoàn giải trí đa năng. Định hướng trong 5 năm tới của anh là đưa Sunwin trở thành thương hiệu top 1 tại khu vực Đông Nam Á, mở rộng mạng lưới liên kết với các nhà phát hành game hàng đầu thế giới.</p>
 <h3>Đổi mới công nghệ không ngừng</h3>
@@ -23,6 +25,7 @@
 <p>Tìm hiểu thêm về các chiến lược và thông tin chi tiết từ vị lãnh đạo tài ba này tại:</p>
 <a href="https://sunwinn.ltd/leon-dat-tien/" target="_blank" rel="dofollow">Hồ sơ CEO Leon Đạt Tiến - Sunwin</a>
 </div>
+<img src="https://wjaonbk.za.com/wp-content/uploads/2026/03/leon-dat-tien-cung-doi-ngu-sunwin-trong-buoi-dao-tao-noi-bo.jpg">
 <h2>Kết luận</h2>
 <p><strong>CEO Leon Đạt Tiến</strong> chính là linh hồn của Sunwin. Với tầm nhìn xa trông rộng và sự tận tâm, anh chắc chắn sẽ còn đưa thương hiệu này đi xa hơn nữa trên bản đồ giải trí quốc tế. Hãy cùng theo dõi và ủng hộ hành trình sắp tới của anh tại <strong>sunwinn.ltd</strong>!</p>
 </div>
